@@ -1,0 +1,1 @@
+Cheating the github profile contribution bar. Credit goes to https://github.com/will
